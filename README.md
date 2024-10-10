@@ -14,3 +14,5 @@ kaua62672@gmail.com
 
 
 ![](https://media.tenor.com/b4lRfN3ASDIAAAAM/pumapjl.gif)
+
+EU NAO QUERO VENCER NA VIDA, EU QUIERO VIVER.
